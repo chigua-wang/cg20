@@ -2,9 +2,9 @@
 瓜圈网- 每日吃瓜-51吃瓜-91在线吃瓜-瓜太郎吃瓜网-黑料吃瓜每日更新最新热门大瓜
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg20/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg20/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
